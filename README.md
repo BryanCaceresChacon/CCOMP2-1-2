@@ -7,3 +7,5 @@
 #Un fifita?
 
 #mano eres muy gay 
+
+#mano te cambie tu archivo desde mi casa 
