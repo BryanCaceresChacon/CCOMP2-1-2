@@ -9,3 +9,5 @@
 #mano eres muy gay 
 
 #mano te cambie tu archivo desde mi casa 
+
+#oemanitoooooooooooooo que tal la cuarentona?
